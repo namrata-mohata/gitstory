@@ -1,0 +1,1 @@
+A thirsty crow was looking for water he found it in earthen pot he put pabbles in it and water came up he drank it and flew away
